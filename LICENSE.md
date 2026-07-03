@@ -1,4 +1,4 @@
-#  
+#  life together rp Script top is the best life together rp Script, featuring speed and auto-sell. Safe and powerful for all your needs.
 
 
 
